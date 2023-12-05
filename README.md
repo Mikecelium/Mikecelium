@@ -8,3 +8,6 @@
 Working with several gyms and product designers to build high quality (yet priced for scalability) products that allow an unprecedented understanding of body musculature, fat distributions and skin conditions over time
 
 If you are interested in research in this area and would like to collaborate feel free to message me
+
+
+ve4%X@6szRsrJV0N
